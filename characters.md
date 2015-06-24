@@ -20,7 +20,7 @@ three identical fourteen-year-old boys, single red-haired girl, torn form-fittin
 
 black-haired boy hugging Belldandy, Keiichi?
 
-middle-aged woman, queenly air, peculiar demeanor, followed the rabbit, Alice?
+middle-aged woman, queenly air, peculiar demeanor, followed the rabbit, [Alice](https://en.wikipedia.org/wiki/Alice%27s_Adventures_in_Wonderland)?
 
 taller brown-haired boy, [Kyon](http://haruhi.wikia.com/wiki/Kyon)
 
