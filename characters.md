@@ -26,7 +26,7 @@ taller brown-haired boy, [Kyon](http://haruhi.wikia.com/wiki/Kyon)
 
 [Spock](http://en.memory-alpha.wikia.com/wiki/Spock)
 
-tall man, shaved head, 40% of neutrinos
+tall man, shaved head, 40% of neutrinos -- [Louis Wu](https://en.wikipedia.org/wiki/Louis_Wu)
 
 [Sam Vimes](http://discworld.wikia.com/wiki/Samuel_Vimes)
 
@@ -38,7 +38,7 @@ boy with the scar -- [Harry Potter](http://harrypotter.wikia.com/wiki/Harry_Pott
 
 Another Damned Holy Grail red shirt black miniskirt thigh-high black stockings -- Tohsaka Rin, dating Miles
 
-shock of yellow hair, yellow trench coat, always complaining, visiting hell, every bloody time he almost dies
+shock of yellow hair, yellow trench coat, always complaining, visiting hell, every bloody time he almost dies -- [John Constantine](https://en.wikipedia.org/wiki/John_Constantine)
 
 boy wrapped in an orange winter coat, [Kenny](https://en.wikipedia.org/?title=Kenny_McCormick) -- "die", "episode", "anthropic"
 
@@ -50,7 +50,7 @@ the Doctor, scarf
 
 Daniel Jackson
 
-tall man, dark robes, shock of black hair, solid black eyes like stars in the night
+tall man, dark robes, shock of black hair, solid black eyes like stars in the night -- [Dream](https://en.wikipedia.org/wiki/Dream_%28comics%29)
 
 "get on with it" (never seemed to say anything else) "And now for something... completely different!" "It’s -" (Monty Python’s Flying Circus)
 
