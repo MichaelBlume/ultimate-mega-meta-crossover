@@ -2,19 +2,19 @@ Characters:
 
 [Pham Nuwen/Ravna Bergnsdot](https://en.wikipedia.org/wiki/A_Fire_Upon_the_Deep)
 
-young girl, yellow ribbons -- Haruhi Suzumiya
+young girl, yellow ribbons -- [Haruhi Suzumiya](http://haruhi.wikia.com/wiki/Haruhi_Suzumiya)
 
-Belldandy
+[Belldandy](http://ah-my-goddess.wikia.com/wiki/Belldandy)
 
-slight, slightly thin man, Harold Shea -- Ravenloft?
+slight, slightly thin man, [Harold Shea](https://en.wikipedia.org/wiki/Harold_Shea) -- [Ravenloft](https://en.wikipedia.org/wiki/Ravenloft)?
 
-beardless, slim, light-eyed, Merlin
+beardless, slim, light-eyed, [Merlin](https://en.wikipedia.org/wiki/Merlin)
 
-Jake StoneBender
+[Jake Stonebender](http://callahans.wikia.com/wiki/Jake_Stonebender)
 
 Xander -- brown robes, black boots, flashlight-like object on his belt
 
-Lazarus Long
+[Lazarus Long](https://en.wikipedia.org/wiki/Lazarus_Long)
 
 three identical fourteen-year-old boys, single red-haired girl, torn form-fitting red suit, bandages, patch, boys: 1000, 4 * 10^4, +1, Oncemore girl, Third Impact, Asuka Langley Soryu
 
@@ -22,19 +22,19 @@ black-haired boy hugging Belldandy, Keiichi?
 
 middle-aged woman, queenly air, peculiar demeanor, followed the rabbit, Alice?
 
-taller brown-haired boy, Kyon
+taller brown-haired boy, [Kyon](http://haruhi.wikia.com/wiki/Kyon)
 
-Spock
+[Spock](http://en.memory-alpha.wikia.com/wiki/Spock)
 
 tall man, shaved head, 40% of neutrinos
 
-Sam Vimes
+[Sam Vimes](http://discworld.wikia.com/wiki/Samuel_Vimes)
 
-Miles Vorkosigan
+[Miles Vorkosigan](https://en.wikipedia.org/?title=Miles_Vorkosigan)
 
-boy with the scar -- Harry Potter
+boy with the scar -- [Harry Potter](http://harrypotter.wikia.com/wiki/Harry_Potter)
 
-bloodstained sweater -- Mr. Rogers
+[bloodstained sweater](https://www.youtube.com/watch?v=4WgT9gy4zQA) -- [Mr. Rogers](https://en.wikipedia.org/wiki/Fred_Rogers)
 
 Another Damned Holy Grail red shirt black miniskirt thigh-high black stockings -- Tohsaka Rin, dating Miles
 
