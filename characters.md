@@ -40,7 +40,7 @@ Another Damned Holy Grail red shirt black miniskirt thigh-high black stockings -
 
 shock of yellow hair, yellow trench coat, always complaining, visiting hell, every bloody time he almost dies
 
-boy wrapped in an orange winter coat, Kenny -- “die”, “episode”, “anthropic”
+boy wrapped in an orange winter coat, [Kenny](https://en.wikipedia.org/?title=Kenny_McCormick) -- “die”, “episode”, “anthropic”
 
 Belgarath, newcomer
 
