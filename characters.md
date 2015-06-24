@@ -1,8 +1,6 @@
 Characters:
 
-Pham Nuwen (FUtD)
-
-Ravna Bergnsdot (FUtD)
+[Pham Nuwen/Ravna Bergnsdot](https://en.wikipedia.org/wiki/A_Fire_Upon_the_Deep)
 
 young girl, yellow ribbons -- Haruhi Suzumiya
 
