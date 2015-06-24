@@ -46,7 +46,7 @@ Belgarath, newcomer
 
 Silverlock
 
-the Doctor, scarf
+the Doctor, scarf, [Four](https://en.wikipedia.org/wiki/Fourth_Doctor)
 
 Daniel Jackson
 
@@ -84,11 +84,11 @@ Jehovah -- that poor Job fellow -- fucking sadistic lunatic -- glad He’s dead 
 
 couple friends of Shea’s, stuck in physics
 
-"Ast kiranann kair soth-arn suh kali jalaran" hissing sibilants, bolt of fire
+"Ast kiranann kair soth-arn suh kali jalaran" hissing sibilants, bolt of fire -- [Raistlin Majere](https://en.wikipedia.org/wiki/Raistlin_Majere)
 
 girl, winged creatures, playing a piano that fell out of the sky, brightly colored pets breathing fire and blinking in and out of existence
 
-muscular man lenticular crystal of a thousand colors on his wrist
+muscular man lenticular crystal of a thousand colors on his wrist -- [Kimball Kinnison](https://en.wikipedia.org/wiki/Lensman_series)
 
 sensuous woman whose deep oaken irises were marred by a single crimson-red dart
 
