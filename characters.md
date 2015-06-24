@@ -40,7 +40,7 @@ Another Damned Holy Grail red shirt black miniskirt thigh-high black stockings -
 
 shock of yellow hair, yellow trench coat, always complaining, visiting hell, every bloody time he almost dies
 
-boy wrapped in an orange winter coat, [Kenny](https://en.wikipedia.org/?title=Kenny_McCormick) -- “die”, “episode”, “anthropic”
+boy wrapped in an orange winter coat, [Kenny](https://en.wikipedia.org/?title=Kenny_McCormick) -- "die", "episode", "anthropic"
 
 Belgarath, newcomer
 
@@ -52,7 +52,7 @@ Daniel Jackson
 
 tall man, dark robes, shock of black hair, solid black eyes like stars in the night
 
-“get on with it” (never seemed to say anything else) “And now for something... completely different!” “It’s -“ (Monty Python’s Flying Circus)
+"get on with it" (never seemed to say anything else) "And now for something... completely different!" "It’s -" (Monty Python’s Flying Circus)
 
 Nathan Brazil
 
@@ -62,7 +62,7 @@ Prince Adam (addressing an audience of six-year-olds)
 
 Neo
 
-“Seventeen is the mystical number”
+"Seventeen is the mystical number"
 
 42, the Question, Arthur Dent
 
@@ -78,13 +78,13 @@ White streak in his hair
 
 Maria Deluca
 
-“wizard did it” buxom woman in black leather armor silver hoop strapped to her thighs -- Xena?
+"wizard did it" buxom woman in black leather armor silver hoop strapped to her thighs -- Xena?
 
 Jehovah -- that poor Job fellow -- fucking sadistic lunatic -- glad He’s dead now -- good thing we had Squirrel Girl
 
 couple friends of Shea’s, stuck in physics
 
-“Ast kiranann kair soth-arn suh kali jalaran” hissing sibilants, bolt of fire
+"Ast kiranann kair soth-arn suh kali jalaran" hissing sibilants, bolt of fire
 
 girl, winged creatures, playing a piano that fell out of the sky, brightly colored pets breathing fire and blinking in and out of existence
 
